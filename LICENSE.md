@@ -1,4 +1,4 @@
-#  
+#  king legacy Script instant is the best king legacy Script, featuring anti-ban and invisibility. Safe and powerful for all your needs.
 
 
 
